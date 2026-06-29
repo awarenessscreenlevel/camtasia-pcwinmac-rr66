@@ -1,4 +1,4 @@
-# 
+# Melhor Camtasia modelos para Mac OS | Profissional Camtasia modelos para PC Windows. Com edição multicâmera e biblioteca de efeitos — otimizado para máximo desempenho em cada plataforma.
 
 
 
